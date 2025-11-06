@@ -12,7 +12,7 @@
 
 
 ### SIGMA PECCI
-![](https://lens.usercontent.google.com/image?vsrid=CPCMtYqT8vb9HBACGAEiJDQ3OTJhN2JjLWFmZjMtNDcwYS05M2YyLWFjYmNkYjM1NjlhNTIGIgJsdSgIOPWFitPG3pAD&gsessionid=Kvgo4do_-Q9sC4Q5kLoN44EwUi0493nWM6UE8BGlfPO21WmHnQjqPw) 
+![](https://lifestylemadeinitaly.it/wp-content/uploads/2015/09/Tina-Vannini-Guido-Pecci-Valeria-Catannia-Giorgia-Calò-Normality.jpg) 
 \
 \
 \
